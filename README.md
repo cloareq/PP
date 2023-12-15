@@ -1,4 +1,4 @@
-Politique de confidentialité pour PupClick
+Politique de confidentialité
 
 Date d'entrée en vigueur : 15/12/2024
 
